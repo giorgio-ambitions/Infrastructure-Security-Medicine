@@ -1,1 +1,1 @@
-Verify AI relative to the automation of pharmaceutical products, devices and devices
+Evaluate AI-based automation for pharmaceutical companies, hospitals, and buildings
